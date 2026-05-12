@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with secure Trading Bot for Polymarket - arbitrage-detection and cross-chain-arbitrage, the #1 trading-bot. Includes arbitrage-detection and
 
 
 
